@@ -30,7 +30,7 @@ Xe limousine	2.500.000 - 3.500.000 VNĐ	3.000.000 - 4.500.000 VNĐ	4.500.000 - 5
 Giá có thể thay đổi vào cuối tuần, dịp lễ hoặc tùy vào từng đơn vị cung cấp.
 Một số dịch vụ tính thêm phụ phí cầu đường, phí chờ nếu đi nhiều điểm.
 Mẹo tiết kiệm: Nên đặt xe trước ít nhất 3-5 ngày để có giá tốt nhất, đặc biệt vào mùa cao điểm du lịch!
-*Xem thêm tại bài viết: https://beachlimo.info/post/thue-xe-di-ho-tram
+* Xem thêm tại bài viết: https://beachlimo.info/post/thue-xe-di-ho-tram
 * https://hackmd.io/QqvxftMuQzSj5oJtuLRKsw
 
 BeachLimo cung cấp các dịch vụ vận tải chuyên nghiệp, bao gồm dịch vụ taxi, dịch vụ vận tải hợp đồng, và dịch vụ cho thuê xe ô tô tại các thành phố lớn như TP. Hồ Chí Minh, Đồng Nai, Bình Dương, Bà Rịa Vũng Tàu, Phan Thiết, Mũi Né, Đà Lạt.
